@@ -5,7 +5,7 @@
 - 📫 How to reach me: 
   - Discord: MaxxxxiorS#8635
   - E-mail: MaxxxxiorSteam@wp.pl
-- 😊 I prefer communicating in Polish, but I shouldn't have problems in English aswell
+- 😊 I prefer communicating in Polish, but I shouldn't have problems in English as well
 <!--- - 💞️ I’m looking to collaborate on ... --->
 
 <!---
