@@ -13,7 +13,7 @@ I’ve completed the **Cisco Networking Academy – CCNA: Introduction to Networ
 
 ## 🌍 Language Skills
 - **Polish:** native
-- **English:** B1 (CEFR) – able to communicate and understand technical documentation
+- **English:** B1/B2 (CEFR) – able to communicate and understand technical documentation
 
 ## 📫 Contact
 - 📧 Email: Maksymilian.Podlecki@gmail.com
